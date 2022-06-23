@@ -1,0 +1,1 @@
+# qa_jun_22_BohdanPolishchuk
